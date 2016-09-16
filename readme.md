@@ -7,18 +7,70 @@ Two Memories
 Half-Brothers (i.e., Death and Sleep)
 Half Memories
 
-no lighthouse tonight in your eyes
-shining on our shallow sea
-  and shallow the sea shared with me
-  sea but not deep shared with me
-no land bridge to cross your mind
-though you're death and I think I'm sleep
-  though you're death and I must be asleep
-  though you're death and I think I'm asleep
+my eyelids thick and voices fate
+  eyelids thick and voice is rusting
+heavy weight against my ear
+your path of necks and reddish dusting
+lay me and leave me here
 
-nothing between us
-nothing between us
-but lenses and mirrors
+eyes on the corner
+eyes on the corner
+flesh in the mortar
+
+keep your eyes forward
+  keep your face forward
+keep your eyes forward
+they're in the corner
+
+one time but two memories
+one time but two memories
+what do you mean? what do you mean?
+one time but two memories
+
+you and me entangled
+in spirals around your face
+  in spirals around your eyes
+  in circles around your eyes
+  in circles around your pupils
+
+angled mirror mirror an angle
+green and gold to gold and greed
+inextricably entangled
+me and you to you and me
+
+eyes on the corner
+eyes on the corner
+flesh in the mortar
+
+keep your eyes forward
+  keep your face forward
+keep your eyes forward
+they're in the corner
+
+one time but two memories
+one time but two memories
+what do you mean? what do you mean?
+one time but two memories
+
+you and me entangled
+in spirals around your face
+  in spirals around your eyes
+  in circles around your eyes
+  in circles around your pupils
+
+
+
+
+no passage between us to take
+no silence to navigate
+no silence and then a sheer drop
+  and no ship our resemblance could meet
+to slip from my spinning thoughts
+  to slip from my memory
+
+what do you mean?
+what do you mean?
+you're greater but I carry dreams
   but lamps and mirrors
 
 how did I get here?
@@ -36,24 +88,10 @@ one night, two memories
   in circles around your eyes
   in circles around your pupils
 
-rasen kaigan
-rasen kaigan
-rasen kaigan
-rasen kaigan
-
-a moon in your face
-a moon in your face
-
-no passage between us to take
-no silence to navigate
-no silence and then a sheer drop
-  and no ship our resemblance could meet
-to slip from my spinning thoughts
-  to slip from my memory
-
+what do you mean?
+what do you mean?
 nothing between us
-nothing between us
-you're greater but I carry dreams
+  but lenses and mirrors
   but lamps and mirrors
 
 circles around your pupils
@@ -62,6 +100,31 @@ next to you breathing
 
 circles of pupils
 
+
+how did I get here?
+how can I lift my eyes?
+entangled, you and me
+one night, two memories
+  in circles around your eyes
+  in circles around your pupils
+
+rasen kaigan
+rasen kaigan
+rasen kaigan
+rasen kaigan
+
+a moon in your face
+a moon in your face
+
+no lighthouse tonight in your eyes
+a rock in the fog in the sea
+  shining on our shallow sea
+  and shallow the sea shared with me
+  sea but not deep shared with me
+no land bridge to cross your mind
+though you're death and I think I'm sleep
+  though you're death and I must be asleep
+  though you're death and I think I'm asleep
 
 ---
 

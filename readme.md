@@ -2,22 +2,93 @@ this song is about not being able to connect to people, even when you seem simil
 
 ----
 
-Title ideas: 
+Title ideas:
 Two Memories
 Half-Brothers (i.e., Death and Sleep)
 Half Memories
 
 no lighthouse tonight in your eyes
-no land bridge to cross your mind
-shallow the sea shared with me
+shining on our shallow sea
+  and shallow the sea shared with me
   sea but not deep shared with me
+no land bridge to cross your mind
 though you're death and I think I'm sleep
-  though you're death and I think I'm sleep
+  though you're death and I must be asleep
+  though you're death and I think I'm asleep
+
+nothing between us
+nothing between us
+but lenses and mirrors
+  but lamps and mirrors
+
+how did I get here?
+how did I stay here?
+you and me entangled
+in spirals around your face
+  in spirals around your eyes
+  in circles around your eyes
+  in circles around your pupils
+
+how did I get here?
+how did I stay here?
+entangled, you and me
+one night, two memories
+  in circles around your eyes
+  in circles around your pupils
+
+rasen kaigan
+rasen kaigan
+rasen kaigan
+rasen kaigan
 
 no passage between us to take
 no silence to navigate
 and no ship our resemblance could meet
 to slip from my memory
+
+circles around your pupils
+
+next to you breathing
+
+circles of pupils
+
+
+---
+
+kathmandu
+
+
+one hundred thousand ladders and wires rising into their right place
+circles around your pupils
+circles around your pupils
+
+don't round that corner,
+don't show your face
+one hundred thousand earthquakes
+
+two eyes on mortar,
+on doors a face
+one hundred thousand towers rising into their right place
+
+angled mirror at an angle
+angled mirror mirror at an angle
+green and gold to either side
+me and you are all entangled
+
+red, paint your face red
+your face of stone
+death, paint your death red
+beneath your throne
+
+tangled up in ancient temples
+signals of your speech
+now the floral blood has dwindled
+down between your feet
+
+silent growling growing canines
+three a head of teeth
+thin and dire, dead in daylight
+sniffing at my feet
 
 ---
 
@@ -160,7 +231,7 @@ displace
 
 [5] now the world can be an unfair place at times
 [5] but your lows will have their complement of highs
-[3+] and if anyone should cheat you, 
+[3+] and if anyone should cheat you,
 [4+] take advantage of, or beat you
 [5] raise your head and wear your wounds with pride
 
@@ -169,10 +240,10 @@ displace
 now kid, I know I haven't been a perfect man
 and I've avoided doing things I know I can
 but if I've learned one thing to tattoo on my arm
-or burn into my thumb 
+or burn into my thumb
 it would be that
 
-you must 
+you must
 stick up for yourself son
 never mind what anybody else done
 stick up for yourself son
@@ -193,13 +264,13 @@ never mind what anybody else done
 
 and when those thunder cloud are crying in the skies, in the skies
 and when those fireflies keep shining lights in your eyes
-keep your mind on the time 
+keep your mind on the time
 with your ass on the line
 keep your fleet feet sliding to the side, to the side
 
 now the world can be an unfair place at times
 but your lows will have their complement of highs
-and if anyone should cheat you, take 
+and if anyone should cheat you, take
 advantage of, or beat you
 raise your head and wear your wounds with pride
 

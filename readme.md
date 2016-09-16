@@ -41,10 +41,20 @@ rasen kaigan
 rasen kaigan
 rasen kaigan
 
+a moon in your face
+a moon in your face
+
 no passage between us to take
 no silence to navigate
-and no ship our resemblance could meet
-to slip from my memory
+no silence and then a sheer drop
+  and no ship our resemblance could meet
+to slip from my spinning thoughts
+  to slip from my memory
+
+nothing between us
+nothing between us
+you're greater but I carry dreams
+  but lamps and mirrors
 
 circles around your pupils
 

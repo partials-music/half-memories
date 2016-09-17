@@ -1,5 +1,13 @@
 this song is about not being able to connect to people, even when you seem similar to them on the surface. even if sometimes you feel disconnected from everyone around you, you don't have to change.
 
+---
+
+ideas for lyrical meter and how to set the melody:
+
+line of iambs or trochees, a lá James Murphy (lasts a measure)
+line of iambs or trochees, Allah James Murphy (lasts a measure)
+line of iambs or trochees in a clave pattern (lasts two measures)
+
 ----
 
 Title ideas:
@@ -58,7 +66,7 @@ in spirals around your face
   in circles around your eyes
   in circles around your pupils
 
-
+---
 
 
 no passage between us to take

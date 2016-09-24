@@ -4,9 +4,9 @@ this song is about not being able to connect to people, even when you seem simil
 
 ideas for lyrical meter and how to set the melody:
 
-line of iambs or trochees, a lá James Murphy (lasts a measure)
-line of iambs or trochees, Allah James Murphy (lasts a measure)
-line of iambs or trochees in a clave pattern (lasts two measures)
+line of iambs or trochees, a lá James Murphy (one measure) tetrameter
+line of iambs or trochees, Allah James Murphy (one measure) tetrameter
+line of iambs or trochees in a clave pattern (two measures) pentameter
 
 ----
 
@@ -15,11 +15,19 @@ Two Memories
 Half-Brothers (i.e., Death and Sleep)
 Half Memories
 
-my eyelids thick and voices fate
+my eyelids thin, the quiet writes
+  my eyelids thin, the cough of time
+  my eyelids thin, the scuff of fate
+  my eyelids thick and voices fate
   eyelids thick and voice is rusting
-heavy weight against my ear
-your path of necks and reddish dusting
-lay me and leave me here
+a heavy rhyme inside my ear
+  a heavy rhyme upon my ear
+  heavy rhyme against my ear
+  heavy weight against my ear
+path of necks and reddish dust
+and sleeping bodies quicken just
+
+listen
 
 eyes on the corner
 eyes on the corner
